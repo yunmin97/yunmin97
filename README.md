@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-Independent game developer
+I'm an independent game developer
